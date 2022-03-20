@@ -8,7 +8,7 @@
  ~ ableist                       
  ~ support pfp / nissa                       
  ~ people who call something a " cult "                       
- ~ plum, kuki, nbphobic klee, and rau ( /j )                        
+ ~ plum and agra ( /j )                        
  ~ people who disrespect tt/td                        
  ~ people who disrespect triggers in general                       
  ~  people who think tonetags and neos r stupid                       
