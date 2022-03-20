@@ -1,6 +1,5 @@
 ★ goin down to southpark ★
  he.him                             
- chaotic gay                                   
  !! **dni** if ur ...                            
  ~ homopobic                       
  ~ racist                       
