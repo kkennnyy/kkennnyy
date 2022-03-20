@@ -5,13 +5,12 @@
  ~ homopobic                       
  ~ racist                       
  ~ bigoted                       
- ~ ableist                       
- ~ support pfp / nissa                       
+ ~ ableist                                     
  ~ people who call something a " cult "                       
  ~ plum and agra ( /j )                        
  ~ people who disrespect tt/td                        
  ~ people who disrespect triggers in general                       
  ~  people who think tonetags and neos r stupid                       
- ~ use " meh " unironically ( im sorry i get annoyed )                        
+                       
  
- [ carrd soon :P check soon ] 
+ https://kennarrd.carrd.co 
