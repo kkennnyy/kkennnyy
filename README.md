@@ -6,6 +6,6 @@ g//re enjoyer ∗
 . ⤿ xenophobic           
 proshipper ∗          
 . ⤿ overly rude          
-ch fan ∗
-. ⤿ anti neo          
+ch fan ∗                              
+. ⤿ anti neo                     
 ♯ PFP BY @wingedwolf94 ON DA 
