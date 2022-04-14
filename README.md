@@ -1,15 +1,10 @@
-★ goin down to southpark ★
- he.him                             
- !! **dni** if ur ...                            
- ~ homopobic                       
- ~ racist                       
- ~ bigoted                       
- ~ ableist                                     
- ~ people who call something a " cult "                       
- ~ plum and agra ( /j )                        
- ~ people who disrespect tt/td                        
- ~ people who disrespect triggers in general                       
- ~  people who think tonetags and neos r stupid                       
-                       
- 
- https://kennarrd.carrd.co 
+⌗ CRAIG / KENNY !!                         
+he / squid / rat 〃☆                        
+♯ dni if ⇢                  
+. ⤿ basic dni criteria           
+g//re enjoyer ∗
+. ⤿ xenophobic 
+proshipper ∗
+. ⤿ overly rude
+ch fan ∗
+. ⤿ anti neo
