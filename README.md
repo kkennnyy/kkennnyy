@@ -1,4 +1,4 @@
-←   →  ↺  〈 github.com/kkennnyy ∟➦ ☆〉          
+←   →  ↺  〈 github.com/kkennnyy ☆〉          
 ⌗ CRAIG / KENNY !!                         
 he / squid / rat 〃☆                        
 ♯ dni if ⇢                  
