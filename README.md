@@ -8,6 +8,9 @@ g//re enjoyer ∗
 proshipper ∗          
 . ⤿ overly rude          
 ch fan ∗                              
-. ⤿ anti neo                     
+. ⤿ anti neo                
+use owo/uwu unironically ∗        
+. ⤿ call things c//lt$
+disrespect triggers / discomforts ∗        
 ♯ PFP BY @wingedwolf94 ON DA                             
 https://craihhg.carrd.co ‹›
